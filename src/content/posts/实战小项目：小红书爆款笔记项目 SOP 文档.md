@@ -19,9 +19,7 @@ description: '欢迎大家来到小红书爆款笔记实战项目文档，在接
 
 **文档使用说明：** 项目带队、项目教练和项目志愿者排名不分先后。本文旨在为你提供本项目 SOP 流程，帮助你更快更好的实操本项目，实操方法包括但不限于本文档，期待你在本文档的基础上探索更多可能性。
 
-[[3.附件/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg|Open: Pasted image 20240621214833.png]]
-![[3.附件/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg]]
-![](../3.附件/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg)
+![](../image/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg)
 # 一、写在前面
 
 hi，各位好。
