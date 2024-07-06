@@ -69,9 +69,7 @@ hi，各位好。
 **2、我今日数据：XXX**
 
 **3、我今日问题：XXX**
-
-[[3.附件/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg|Open: Pasted image 20240621215027.png]]
-![[3.附件/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg]]
+![](../image/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg)
 # 二、项目背景
 
   
@@ -537,9 +535,7 @@ hi，各位好。
   
 
 可以是定位相关的图片，也可以是引流的图片。
-[[3.附件/984186adf12314592dbe5984f81a6a67_MD5.jpeg|Open: Pasted image 20240621225334.png]]
-![[3.附件/984186adf12314592dbe5984f81a6a67_MD5.jpeg]]
-
+![](../image/984186adf12314592dbe5984f81a6a67_MD5.jpeg)
 我们以IDO老徐的帐号为例来拆解
 
   
