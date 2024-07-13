@@ -669,8 +669,8 @@ hi，各位好。
   
 
 并且善用关键词下方的频道，比如副业+打工人、副业+普通人来进行精细化选择。
-[[3.附件/777f39338c03d2f32ae8b9f46eb39e10_MD5.jpeg|Open: Pasted image 20240621225422.png]]
-![[3.附件/777f39338c03d2f32ae8b9f46eb39e10_MD5.jpeg]]
+![](../image/777f39338c03d2f32ae8b9f46eb39e10_MD5.jpeg)
+![](../image/c61cc78db6cbca70e5cb014edfa8198d_MD5.jpeg)
 
 ### 2、无脑刷小红书
 
@@ -682,9 +682,7 @@ hi，各位好。
 
 系统也会为你推荐相关的搜索词给到你。如下图。辅助你决策分析。
 
-  [[3.附件/56e5cb46da3924edf32316b41257b483_MD5.jpeg|Open: Pasted image 20240621225446.png]]
-
-![[3.附件/56e5cb46da3924edf32316b41257b483_MD5.jpeg]]
+![](../image/56e5cb46da3924edf32316b41257b483_MD5.jpeg)
 
 
 ### 3、借助工具
@@ -696,8 +694,7 @@ hi，各位好。
   
 
 你在百度搜的同时，**百度也会提示你同类型的工具**，都是可以去使用的，工具无所谓，适合自己最重要。
-[[3.附件/e6eaed378c3bd27342abe25a310a8592_MD5.jpeg|Open: Pasted image 20240621225512.png]]
-![[3.附件/e6eaed378c3bd27342abe25a310a8592_MD5.jpeg]]
+![](../image/e6eaed378c3bd27342abe25a310a8592_MD5.jpeg)
 
 ## 拆解对标帐号
 
@@ -733,8 +730,7 @@ hi，各位好。
 
 第一个帐号，就给人感觉更舒服一些，封面模版统一，数据良好。
 
-[[3.附件/7ea69f54047d69addd0578cf272e8a6d_MD5.jpeg|Open: Pasted image 20240621225534.png]]
-![[3.附件/7ea69f54047d69addd0578cf272e8a6d_MD5.jpeg]]
+![](../image/7ea69f54047d69addd0578cf272e8a6d_MD5.jpeg)
 
 ### 2、笔记内容
 
@@ -769,8 +765,7 @@ hi，各位好。
   
 
 右边的是在评论区讨论如何操作，就可以去关注相关的点，去整理出对应的笔记。
-[[3.附件/08007e0a4031868f21f98d3242b0878c_MD5.jpeg|Open: Pasted image 20240621225604.png]]
-![[3.附件/08007e0a4031868f21f98d3242b0878c_MD5.jpeg]]
+![](../image/08007e0a4031868f21f98d3242b0878c_MD5.jpeg)
 
 # 七、找爆款选题-晨光
 
@@ -877,8 +872,7 @@ hi，各位好。
   
 
 小红书笔记的流量来源，主要有 5 个：首页推荐、关注页面、搜索、个人主页、其他来源（如下图）
-[[3.附件/331ba95f530cc6b4b109f3765fa9d0c6_MD5.jpeg|Open: Pasted image 20240621225718.png]]
-![[3.附件/331ba95f530cc6b4b109f3765fa9d0c6_MD5.jpeg]]
+![](../image/331ba95f530cc6b4b109f3765fa9d0c6_MD5.jpeg)
 
 因为是新号，所以这篇笔记中，没有关注页流量
 
@@ -888,15 +882,15 @@ hi，各位好。
 
   
 
-用户打开小红书，默认出现在首页的内容，就是平台推荐给用户的内容。（如下图）[[3.附件/7de52e7b5a3c96bbcb27c5c74ad089ca_MD5.jpeg|Open: Pasted image 20240621225735.png]]
-![[3.附件/7de52e7b5a3c96bbcb27c5c74ad089ca_MD5.jpeg]]
+用户打开小红书，默认出现在首页的内容，就是平台推荐给用户的内容。（如下图）
+![](../image/7de52e7b5a3c96bbcb27c5c74ad089ca_MD5.jpeg)
 
 **2、关注页面**
 
   
 
-在首页有关注栏，用户可以看到所关注博主更新的内容。（如下图）[[3.附件/3884c251bd028af1f697bd4950a1477f_MD5.jpeg|Open: Pasted image 20240621225753.png]]
-![[3.附件/3884c251bd028af1f697bd4950a1477f_MD5.jpeg]]
+在首页有关注栏，用户可以看到所关注博主更新的内容。（如下图）
+![](../image/3884c251bd028af1f697bd4950a1477f_MD5.jpeg)
 
 
 从关注页面来的流量，取决于博主的粉丝数量和粉丝粘性。
@@ -908,8 +902,7 @@ hi，各位好。
   
 
 用户在首页搜索关键词，搜到某篇笔记并点击查看。（如下图）
-[[3.附件/7208d6b0dbb13a030b5f2469f0060aab_MD5.jpeg|Open: Pasted image 20240621225808.png]]
-![[3.附件/7208d6b0dbb13a030b5f2469f0060aab_MD5.jpeg]]
+![](../image/7208d6b0dbb13a030b5f2469f0060aab_MD5.jpeg)
 
 **4、个人主页**
 
@@ -1340,8 +1333,7 @@ hi，各位好。
   
 
 随后她去践行，没想到今天就来给我报喜了。
-[[3.附件/de1108226fb2d625de612a7555057437_MD5.jpeg|Open: Pasted image 20240621225927.png]]
-![[3.附件/de1108226fb2d625de612a7555057437_MD5.jpeg]]
+![](../image/de1108226fb2d625de612a7555057437_MD5.jpeg)
 
 由于我在自媒体行业深耕了 5 年，踩了无数坑，所以账号运营的经验，略微丰富一些，
 
@@ -1583,9 +1575,9 @@ hi，各位好。
 
   
 
-如下图：[[3.附件/c2a206b643d89a60f2edc8075c3a44fa_MD5.jpeg|Open: Pasted image 20240621230002.png]]
-![[3.附件/c2a206b643d89a60f2edc8075c3a44fa_MD5.jpeg]][[3.附件/b223abf89fc16f59bba03867103cb2b3_MD5.jpeg|Open: Pasted image 20240621230013.png]]
-![[3.附件/b223abf89fc16f59bba03867103cb2b3_MD5.jpeg]]
+如下图：
+![](../image/c2a206b643d89a60f2edc8075c3a44fa_MD5.jpeg)
+![](../image/b223abf89fc16f59bba03867103cb2b3_MD5.jpeg)
 
 上边是横版4:3的比例；下边是竖版3:4的比例
 
@@ -1598,8 +1590,7 @@ hi，各位好。
   
 
 如下图：
-[[3.附件/e9ea4f5db3d982f2f024427473d32da3_MD5.jpeg|Open: Pasted image 20240621230047.png]]
-![[3.附件/e9ea4f5db3d982f2f024427473d32da3_MD5.jpeg]]
+![](../image/e9ea4f5db3d982f2f024427473d32da3_MD5.jpeg)
 
 封面可大致分为上、中、下三部分。
 
@@ -1619,8 +1610,7 @@ hi，各位好。
 
 如下图：
 
-[[3.附件/c1fe07468a0c2bb33302af28197477ff_MD5.jpeg|Open: Pasted image 20240621230128.png]]
-![[3.附件/c1fe07468a0c2bb33302af28197477ff_MD5.jpeg]]
+![](../image/c1fe07468a0c2bb33302af28197477ff_MD5.jpeg)
 
 上下两张图拼在一块，中间拼接部分放上标题或文案。
 
@@ -1639,8 +1629,7 @@ hi，各位好。
   
 
 如下图：
-[[3.附件/349dd523a5c10f928eb35429628b4f44_MD5.jpeg|Open: Pasted image 20240621230208.png]]
-![[3.附件/349dd523a5c10f928eb35429628b4f44_MD5.jpeg]]
+![](../image/349dd523a5c10f928eb35429628b4f44_MD5.jpeg)
 
 左图，是竖版构图，画面正中是清晰的人物主体，上方或中间是主标题，其他地方根据情况加入一些关键词；
 
@@ -1656,8 +1645,7 @@ hi，各位好。
 
 如下图：
 
-[[3.附件/c1aa1679af4345946d1f67932af81b75_MD5.jpeg|Open: Pasted image 20240621230314.png]]
-![[3.附件/c1aa1679af4345946d1f67932af81b75_MD5.jpeg]]
+![](../image/c1aa1679af4345946d1f67932af81b75_MD5.jpeg)
 
 这种排版多用于vlog，有场景化的背景氛围和人物主体，再搭配吸引人的封面标题。
 
@@ -1685,8 +1673,7 @@ hi，各位好。
 
 比如下面这篇笔记，
 
-[[3.附件/d18b8782dd10995c75797add17027fed_MD5.jpeg|Open: Pasted image 20240621230331.png]]
-![[3.附件/d18b8782dd10995c75797add17027fed_MD5.jpeg]]
+![](../image/d18b8782dd10995c75797add17027fed_MD5.jpeg)
 
 封面标题是：2024改变自己，从未习惯开始！
 
@@ -2110,8 +2097,7 @@ hi，各位好。
 
 如下图：
 
-[[3.附件/17d8a57a01572cc8955d4147e789df2b_MD5.jpeg|Open: Pasted image 20240621230455.png]]
-![[3.附件/17d8a57a01572cc8955d4147e789df2b_MD5.jpeg]]
+![](../image/17d8a57a01572cc8955d4147e789df2b_MD5.jpeg)
 
 直接用图片的形式呈现知识点，除了必要的标题，连文案都省了。
 
@@ -2123,7 +2109,7 @@ hi，各位好。
 
 如下图：
 
-![[3.附件/6c951e260042dc2dfd6eb029d20cfe29_MD5.jpeg]]
+![](../image/6c951e260042dc2dfd6eb029d20cfe29_MD5.jpeg)
 
 笔记有一张或多张与主题相关的图片，主要内容用文字表达。
 
@@ -2137,8 +2123,8 @@ hi，各位好。
 
   
 
-如下图：[[3.附件/099388bfa97aa8384d7502a0490c1c19_MD5.jpeg|Open: Pasted image 20240621230603.png]]
-![[3.附件/099388bfa97aa8384d7502a0490c1c19_MD5.jpeg]]
+如下图：
+![](../image/099388bfa97aa8384d7502a0490c1c19_MD5.jpeg)
 
 把文字内容放在应景的图片上。
 
@@ -2348,9 +2334,7 @@ hi，各位好。
 
 例如：所谓工作能力强，就5点
 
-
-[[3.附件/152b18d7b177a5cb14248931e55cc561_MD5.jpeg|Open: Pasted image 20240621230707.png]]
-![[3.附件/152b18d7b177a5cb14248931e55cc561_MD5.jpeg]]
+![](../image/152b18d7b177a5cb14248931e55cc561_MD5.jpeg)
 
 ##### **方法2：盘点清单**
 
@@ -2362,8 +2346,7 @@ hi，各位好。
 
 例如：我很优秀清单这个选题。很多博主，直接盘点了自己过往的成绩，通过这种形式不断强化自己的人设。后期要植入产品也很有说服力。
 
-[[3.附件/cee70e7d5a703ba1bf085ad3f04d09a2_MD5.jpeg|Open: Pasted image 20240621230745.png]]
-![[3.附件/cee70e7d5a703ba1bf085ad3f04d09a2_MD5.jpeg]]
+![](../image/cee70e7d5a703ba1bf085ad3f04d09a2_MD5.jpeg)
 
 ##### 方法3：**是什么-为什么-怎么办**
 
@@ -2383,8 +2366,7 @@ hi，各位好。
 
 博主刚开始写了一篇，笔记火了，就继续写。
 
-[[3.附件/0a4f41d0f857f69c72a6ba348f190eb3_MD5.jpeg|Open: Pasted image 20240621230803.png]]
-![[3.附件/0a4f41d0f857f69c72a6ba348f190eb3_MD5.jpeg]]
+![](../image/0a4f41d0f857f69c72a6ba348f190eb3_MD5.jpeg)
 
 #### **03 软广植入**
 
@@ -2434,13 +2416,11 @@ hi，各位好。
 
 例如：你是做职场的，可以直接展示你的办公桌，你的桌子上可以有电脑、书籍、台灯等等，这些都可以植入你的产品。
 
-[[3.附件/844d49a613a83ec34d4f250edfb3e714_MD5.jpeg|Open: Pasted image 20240621231239.png]]
-![[3.附件/844d49a613a83ec34d4f250edfb3e714_MD5.jpeg]]
+![](../image/844d49a613a83ec34d4f250edfb3e714_MD5.jpeg)
 
 例如，你是分享干货的，可以直接在卡片中，写出能给用户带来什么价值，很抢眼。
 
-[[3.附件/55c48a1a8e0d8fd2bbfbc150863d9225_MD5.jpeg|Open: Pasted image 20240621231301.png]]
-![[3.附件/55c48a1a8e0d8fd2bbfbc150863d9225_MD5.jpeg]]
+![](../image/55c48a1a8e0d8fd2bbfbc150863d9225_MD5.jpeg)
 
 ##### **形式2：两张拼接**
 
@@ -2456,8 +2436,7 @@ hi，各位好。
 
 还有一种拼接是左右拼接， 这种拼接形式，一般用来展示before/after。给人一种冲击感，想要看到自己的改变。这种形式也很容易植入自己的产品。
 
-[[3.附件/8a9772886acc548ec757b87b95e1963f_MD5.jpeg|Open: Pasted image 20240621231321.png]]
-![[3.附件/8a9772886acc548ec757b87b95e1963f_MD5.jpeg]]
+![](../image/8a9772886acc548ec757b87b95e1963f_MD5.jpeg)
 
 ##### **形式3：四宫格**
 
@@ -2465,8 +2444,7 @@ hi，各位好。
 
 四张图片拼接在一起，每一张展示1个不同的画面。这种形式可以植入每个有特色的产品，展示自己的生活中温暖的某个片段。多用于成长类、生活系博主。
 
-[[3.附件/f8968d0da60c00728f1d32f7e92e979f_MD5.jpeg|Open: Pasted image 20240621231347.png]]
-![[3.附件/f8968d0da60c00728f1d32f7e92e979f_MD5.jpeg]]
+![](../image/f8968d0da60c00728f1d32f7e92e979f_MD5.jpeg)
 
 #### 02 注意事项
 
@@ -2483,8 +2461,7 @@ hi，各位好。
   
 
 黄油相机 + 美图秀秀 + 醒图app + PPT制作
-[[3.附件/af820162ae8c407b7d9d4f5154033fac_MD5.jpeg|Open: Pasted image 20240621231413.png]]
-![[3.附件/af820162ae8c407b7d9d4f5154033fac_MD5.jpeg]]
+![](../image/af820162ae8c407b7d9d4f5154033fac_MD5.jpeg)
 
 **工具1：黄油相机**
 
@@ -2496,18 +2473,15 @@ hi，各位好。
 
 第一步：打开黄油相机，点击【导入图片】，选择你要适用的照片即可
 
-[[3.附件/215fdfd1ad26f8f384a351289069f5af_MD5.jpeg|Open: Pasted image 20240621231432.png]]
-![[3.附件/215fdfd1ad26f8f384a351289069f5af_MD5.jpeg]]
+![](../image/215fdfd1ad26f8f384a351289069f5af_MD5.jpeg)
 
 第二步：修图，点击【调整】，根据自己的喜好，调整参数即可
 
-[[3.附件/48b68f9ac5f3944146a18ccda17cc3a1_MD5.jpeg|Open: Pasted image 20240621231452.png]]
-![[3.附件/48b68f9ac5f3944146a18ccda17cc3a1_MD5.jpeg]]
+![](../image/48b68f9ac5f3944146a18ccda17cc3a1_MD5.jpeg)
 
 第三步：加字，点击【加字】，然后选择适当的花字即可。
 
-[[3.附件/257d1795d09d1d35e16c33eafe083139_MD5.jpeg|Open: Pasted image 20240621231530.png]]
-![[3.附件/257d1795d09d1d35e16c33eafe083139_MD5.jpeg]]
+![](../image/257d1795d09d1d35e16c33eafe083139_MD5.jpeg)
 
 小红书的封面，搞定这3步，就能很快出土。
 
@@ -2517,8 +2491,7 @@ hi，各位好。
 
 这个工具，主要用来拼图，或者拍真人，觉得画面不够好看，辅助适用。里面的工具按钮都很简单，点击对应键即可。
 
-[[3.附件/410901ab8d42cef0e24e9f6be145f901_MD5.jpeg|Open: Pasted image 20240621231555.png]]
-![[3.附件/410901ab8d42cef0e24e9f6be145f901_MD5.jpeg]]
+![](../image/410901ab8d42cef0e24e9f6be145f901_MD5.jpeg)
 
 **工具3：PPT作图**
 
@@ -2530,8 +2503,7 @@ hi，各位好。
 
 第一次做笔记麻烦，要调整好模板，后面用，直接修改文字即可。（如图）
 
-[[3.附件/701ff7d9b4e80e5d5cb0e829ff0b66f1_MD5.jpeg|Open: Pasted image 20240621231627.png]]
-![[3.附件/701ff7d9b4e80e5d5cb0e829ff0b66f1_MD5.jpeg]]
+![](../image/701ff7d9b4e80e5d5cb0e829ff0b66f1_MD5.jpeg)
 
 ## 7、话题标签
 
@@ -2559,8 +2531,7 @@ hi，各位好。
 
 如下图，这一篇爆款笔记，加了#自我提升、#努力变优秀等标签，你发布作品时，也可以直接添加这些标签。
 
-[[3.附件/5d5947f4900fa4b296ff73a77517f6e6_MD5.jpeg|Open: Pasted image 20240621231654.png]]
-![[3.附件/5d5947f4900fa4b296ff73a77517f6e6_MD5.jpeg]]
+![](../image/5d5947f4900fa4b296ff73a77517f6e6_MD5.jpeg)
 
 **方法2：搜索灵感笔记**
 
@@ -2568,13 +2539,11 @@ hi，各位好。
 
 点击右上角“三”三个横线，到创作中心
 
-[[3.附件/eeb48ea7166e34bee8091d3d82c533f7_MD5.jpeg|Open: Pasted image 20240621231718.png]]
-![[3.附件/eeb48ea7166e34bee8091d3d82c533f7_MD5.jpeg]]
+![](../image/eeb48ea7166e34bee8091d3d82c533f7_MD5.jpeg)
 
 打开创作中心，看笔记灵感中和自己话题相关的内容，加上官方推荐的话题，能够增加笔记的曝光。
 
-[[3.附件/e67a23004812c32da881958dbfe9c127_MD5.jpeg|Open: Pasted image 20240621231832.png]]
-![[3.附件/e67a23004812c32da881958dbfe9c127_MD5.jpeg]]
+![](../image/e67a23004812c32da881958dbfe9c127_MD5.jpeg)
 
 **方法3：制作自定义标签**
 
@@ -2610,8 +2579,7 @@ hi，各位好。
 
 如图，我打上职场，下面就会有相关的话题，还有浏览量的参考
 
-[[3.附件/9c0a93aa244739baad7da4de76de8044_MD5.jpeg|Open: Pasted image 20240621231902.png]]
-![[3.附件/9c0a93aa244739baad7da4de76de8044_MD5.jpeg]]
+![](../image/9c0a93aa244739baad7da4de76de8044_MD5.jpeg)
 
 这几种标签可以集结合起来使用，一篇笔记文末可以加很多标签。
 
@@ -2691,8 +2659,7 @@ hi，各位好。
 
 如下图所示
 
-[[3.附件/9c246cb5b51c444136246895b0d3fe8a_MD5.jpeg|Open: Pasted image 20240621231925.png]]
-![[3.附件/9c246cb5b51c444136246895b0d3fe8a_MD5.jpeg]]
+![](../image/9c246cb5b51c444136246895b0d3fe8a_MD5.jpeg)
 
 ### 3）通过 瞬间 ，引导入群 / 私信
 
@@ -2703,8 +2670,7 @@ hi，各位好。
   
 
 如下图。但这是一个比较明显的引导，不建议这样写。
-[[3.附件/54d864e1af47bd87a8f52a27a55da62d_MD5.jpeg|Open: Pasted image 20240621232019.png]]
-![[3.附件/54d864e1af47bd87a8f52a27a55da62d_MD5.jpeg]]
+![](../image/54d864e1af47bd87a8f52a27a55da62d_MD5.jpeg)
 
 **对于新号来说，直接用粉丝群引流即可，不建议通过 瞬间 引导，易被查。**
 
@@ -2740,24 +2706,20 @@ hi，各位好。
 
 02 在醒图app中制作，步骤如下：
 
-[[3.附件/5227fe2b7c03a680c57ba070c56a3113_MD5.jpeg|Open: Pasted image 20240621232117.png]]
-![[3.附件/5227fe2b7c03a680c57ba070c56a3113_MD5.jpeg]]
+![](../image/5227fe2b7c03a680c57ba070c56a3113_MD5.jpeg)
 
 2）打开小红书，点击头像右下角“+”号
 
-[[3.附件/23b0f6d3823e161d04ae1978bc16de7d_MD5.jpeg|Open: Pasted image 20240621232230.png]]
-![[3.附件/23b0f6d3823e161d04ae1978bc16de7d_MD5.jpeg]]
+![](../image/23b0f6d3823e161d04ae1978bc16de7d_MD5.jpeg)
 
 3）进入记录我的日常，点击打卡
 
-[[3.附件/760425e43599557733d9321ab5fe6ad9_MD5.jpeg|Open: Pasted image 20240621232246.png]]
-![[3.附件/760425e43599557733d9321ab5fe6ad9_MD5.jpeg]]
+![](../image/760425e43599557733d9321ab5fe6ad9_MD5.jpeg)
 
 4）选择自定义打卡，输入文字，只能显示4个字，并点击右上角的下一步
 
-[[3.附件/8409ddc5e6f533938429da8b0d44950e_MD5.jpeg|Open: Pasted image 20240621232315.png]]
-![[3.附件/8409ddc5e6f533938429da8b0d44950e_MD5.jpeg]][[3.附件/a2c71a92948243687d5e298437893cb6_MD5.jpeg|Open: Pasted image 20240621232322.png]]
-![[3.附件/a2c71a92948243687d5e298437893cb6_MD5.jpeg]]
+![](../image/8409ddc5e6f533938429da8b0d44950e_MD5.jpeg)
+![](../image/a2c71a92948243687d5e298437893cb6_MD5.jpeg)
 
 5）选择提前准备好的图片，发布瞬间
 
@@ -2765,13 +2727,11 @@ hi，各位好。
 
 上传时按：“料 资 qun 进”的顺序上传
 
-[[3.附件/58cc6070effb29b49aba02bd51e47506_MD5.jpeg|Open: Pasted image 20240621232413.png]]
-![[3.附件/58cc6070effb29b49aba02bd51e47506_MD5.jpeg]]
+![](../image/58cc6070effb29b49aba02bd51e47506_MD5.jpeg)
 
 6）初步效果如下图，继续点击【分享瞬间】
 
-[[3.附件/f317fdc36f6acb0708af15cdfe2367b1_MD5.jpeg|Open: Pasted image 20240621232432.png]]
-![[3.附件/f317fdc36f6acb0708af15cdfe2367b1_MD5.jpeg]]
+![](../image/f317fdc36f6acb0708af15cdfe2367b1_MD5.jpeg)
 
 7）重复第 4 步操作，选择自定义打卡
 
@@ -2953,8 +2913,7 @@ hi，各位好。
 
 5）粉丝群引流，也会出现下图这种情况：
 
-[[3.附件/f4bd5881b763d04b97dc451792c93fe3_MD5.jpeg|Open: Pasted image 20240621232507.png]]
-![[3.附件/f4bd5881b763d04b97dc451792c93fe3_MD5.jpeg]]
+![](../image/f4bd5881b763d04b97dc451792c93fe3_MD5.jpeg)
 
 这种情况，属于同行恶意举报，没办法避免。
 
@@ -2968,7 +2927,7 @@ hi，各位好。
 
   
 
-链接：[[https://t.zsxq.com/Iiii8]]
+链接：(https://t.zsxq.com/Iiii8)
 
   
 
